@@ -1,4 +1,7 @@
-<img width="640" height="360" alt="1647" src="https://github.com/user-attachments/assets/08eba8df-9f89-4be1-af0e-0fac89b8408a" />
+<img width="268" height="268" alt="1634" src="https://github.com/user-attachments/assets/f5f91820-e8f4-445d-b31f-bd06e122d411" />
+
+![1365](https://github.com/user-attachments/assets/264db93c-b335-4234-9b55-5f066b6e19c8)
+
 
 
 [ataboo.k](https://ticklepride.atabook.org/)
