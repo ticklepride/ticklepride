@@ -1,4 +1,4 @@
-![Uploading 1646.gif…]()
+<img width="640" height="360" alt="1647" src="https://github.com/user-attachments/assets/08eba8df-9f89-4be1-af0e-0fac89b8408a" />
 
 
 [ataboo.k](https://ticklepride.atabook.org/)
