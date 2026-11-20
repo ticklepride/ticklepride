@@ -4,8 +4,6 @@
 
 
 
-![1365](https://github.com/user-attachments/assets/264db93c-b335-4234-9b55-5f066b6e19c8)
-
 
 
 workin rpogess
